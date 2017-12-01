@@ -14,7 +14,7 @@ Préparation : 5min12
 + Gousse d'ail
 + Sel
 
- ### Pense à ça avant de cuisiner (Non aux purées collante décevantes)
+ ### Pense à ça avant de cuisiner (Non aux purées collantes décevantes)
   
 Pour une purée onctueuse, ne pas trop mélanger ou écraser. \
 Utiliser un presse-purée avec levier pour une purée plus fine et légère.
