@@ -1,7 +1,7 @@
 # Comment faire une bonne purée? 
 
 [Jolie fleur](https://www.youtube.com/watch?v=Hl1thnPla7E) \
-Pour : 5 personnes 
+Pour : 5 personnes \
 Préparation : 5m12 \
 
 ### Ingrédients 
