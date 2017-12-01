@@ -23,4 +23,4 @@ Utiliser un presse-purée avec levier pour une purée plus fine et légère.
 
 1. Cuire les pommes de terre. Rajouter le laurier, le thym, le safran et le curcuma.
 2. Pétrir les pommes de terre. Une fois pétrie, rajouter une gousse d'ail. 
-3. Si la purée a cramer, rajouter du sel dessus pour absorber les senteurs de brûlé.
+3. Si la purée a cramé, rajouter du sel dessus pour absorber les senteurs de brûlé.
