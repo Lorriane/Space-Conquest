@@ -2,7 +2,7 @@
 
 [Jolie fleur](https://www.youtube.com/watch?v=Hl1thnPla7E) \
 Pour : 5 personnes \
-Préparation : 5m12 \
+Préparation : 5m12 
 
 ### Ingrédients 
 
@@ -16,7 +16,8 @@ Préparation : 5m12 \
 
  ### Pense à ça avant de cuisiner (Non aux purées collante décevantes)
   
-Pour une purée onctueuse, ne pas trop mélanger ou écraser. Utiliser un presse-purée avec levier pour une purée plus fine et légère.
+Pour une purée onctueuse, ne pas trop mélanger ou écraser. \
+Utiliser un presse-purée avec levier pour une purée plus fine et légère.
 
 ### Préparation
 
