@@ -1,7 +1,8 @@
 # Space-Conquest
 Let's Battle !
 
-### Test
+### Recettes
 
-+ Text 1
-+ Test 2
++ Bonne purée
+
+### Test 2
