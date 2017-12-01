@@ -2,7 +2,7 @@
 
 [Jolie fleur](https://www.youtube.com/watch?v=Hl1thnPla7E) \
 Pour : 5 personnes \
-Préparation : 5m12 
+Préparation : 5min12 
 
 ### Ingrédients 
 
